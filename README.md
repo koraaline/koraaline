@@ -26,7 +26,7 @@
 ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘
 
 **" kitto wakatteru darou kedo, "**
-> " hm? It's you. " <img width="20" height="20" alt="tumblr-1fb768a46c885091bb70589b0646adee-841183d8-1280" src="https://github.com/user-attachments/assets/5c88fcbb-aeb5-44a1-820e-9cee158f8e07" />
+> " hm? it's you. " <img width="20" height="20" alt="tumblr-1fb768a46c885091bb70589b0646adee-841183d8-1280" src="https://github.com/user-attachments/assets/5c88fcbb-aeb5-44a1-820e-9cee158f8e07" />
 
 <p align="center">
   <img width="20" height="20" alt="b98" src="https://github.com/user-attachments/assets/872e4cea-6882-4090-8268-d3059317cd3f" /> kora ᵒʳ dakota : : he / she / they !! . . (˶˃ ᵕ ˂˶) <img width="20" height="20" alt="b156" src="https://github.com/user-attachments/assets/6d9284af-5cef-4ccf-9993-b21a5f6758f8" />
