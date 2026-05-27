@@ -48,7 +48,7 @@
 ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘ . ∘₊✧─────✧₊∘
 
 **" yōkoso ore no pātī e !*!* "**
-> " good news! Mammon's back ! " . . <img width="20" height="20" alt="8wadm4" src="https://github.com/user-attachments/assets/a6fc603c-8e52-40a0-9843-5dbe458d4943" />
+> " good news! mammon's back ! " . . <img width="20" height="20" alt="8wadm4" src="https://github.com/user-attachments/assets/a6fc603c-8e52-40a0-9843-5dbe458d4943" />
 
 <p align="center">
   ⸝⸝ ( <img width="20" height="20" alt="o1" src="https://github.com/user-attachments/assets/2b1d80a1-5b72-4228-bfdc-123d3a3a0b89" /> ! ! #1 mammon luvr . . : : <img width="20" height="20" alt="o97" src="https://github.com/user-attachments/assets/af1f3a31-9351-41b8-bacb-40f76a84cc3b" />
