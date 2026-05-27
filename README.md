@@ -57,7 +57,7 @@
   ♬⋆.˚ FANDOMS !*!* : : pjo, hoo, toa, tsats, e:tm, alnst, ***btsw***, love bites, nerd proj, manhwa's/bl's, ***obey me!***, witch hat atelier(anime), sfawtde, the mimic(roblox) . . also an ***amicos*** + ***conehead*** ^_^
 
 <p align="center">
-  [ <img width="20" height="20" alt="toqlnk" src="https://github.com/user-attachments/assets/802d47d5-666e-4ed0-80a1-9e9ffdb1b291" /> ˎˊ˗ int freely ! i like yapping  ! ! ! : : <img width="20" height="20" alt="tumblr-99e60e8d83cb3f42c5008277972bb1eb-fabe19ee-1280" src="https://github.com/user-attachments/assets/58e7a2c0-cca6-496b-9c9e-be12167d3c2b" />
+  [ <img width="20" height="20" alt="toqlnk" src="https://github.com/user-attachments/assets/802d47d5-666e-4ed0-80a1-9e9ffdb1b291" /> ˎˊ˗ i love yapping abt interests  ! ! ! : : <img width="20" height="20" alt="tumblr-99e60e8d83cb3f42c5008277972bb1eb-fabe19ee-1280" src="https://github.com/user-attachments/assets/58e7a2c0-cca6-496b-9c9e-be12167d3c2b" />
 </p>
 
 ( ^ o ^ ) . . *credits to @ColorfulMush for readme:)*
