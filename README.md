@@ -54,7 +54,7 @@
   ⸝⸝ ( <img width="20" height="20" alt="o1" src="https://github.com/user-attachments/assets/2b1d80a1-5b72-4228-bfdc-123d3a3a0b89" /> ! ! #1 mammon luvr . . : : <img width="20" height="20" alt="o97" src="https://github.com/user-attachments/assets/af1f3a31-9351-41b8-bacb-40f76a84cc3b" />
 </p>
 
-  ♬⋆.˚ FANDOMS !*!* : : pjo, hoo, toa, tsats, e:tm, hadestown, ***btsw***, love bites, nerd proj, manhwa's/bl's, ***obey me!***, trolls: band together, sfawtde, the mimic(roblox) . . also an ***amicos*** + ***conehead*** ^_^
+  ♬⋆.˚ FANDOMS !*!* : : pjo, hoo, toa, tsats, e:tm, hadestown, btsw, love bites, nerd proj, manhwa's/bl's, ***obey me!***, ***the music freaks***, sfawtde, the mimic(roblox) . . also an ***amicos*** + ***conehead*** ^_^
 
 <p align="center">
   [ <img width="20" height="20" alt="toqlnk" src="https://github.com/user-attachments/assets/802d47d5-666e-4ed0-80a1-9e9ffdb1b291" /> ˎˊ˗ i love yapping abt interests  ! ! ! : : <img width="20" height="20" alt="tumblr-99e60e8d83cb3f42c5008277972bb1eb-fabe19ee-1280" src="https://github.com/user-attachments/assets/58e7a2c0-cca6-496b-9c9e-be12167d3c2b" />
